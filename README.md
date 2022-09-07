@@ -1,4 +1,4 @@
-## Hi, i'm Elivelton, the Loretto-dev, i'm gamer and collector of rare games, lover of açai, lasanha and japanese cars.
+## Hi, i'm Elivelton, the Loretto-dev, i'm gamer and collector of rare games, lover of açai, lasanha and jdm.
 - 🔭 Looking for a job/collaborate of Front-end
 - 🌱 I’m currently learning JavaScript
 - 💬 Ask me about: What do you want to know about What if?(Marvel)
